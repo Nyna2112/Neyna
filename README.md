@@ -1,4 +1,4 @@
-# Hi, I'm Neyna Gunti 👋
+# Hi, I'm Neyna Sri Gunti 👋
 
 **QA tester | MSc Computer Science, Anglia Ruskin University | Cambridge, UK**
 
